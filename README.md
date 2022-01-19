@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ZikadorBr
+- 👀 I’m interested in learn more about programming 
+- 🌱 I’m currently learning the basic again
+- 📫 You can reach me by send an email at this adress jorgeluizptj@gmail.com
